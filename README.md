@@ -1,1 +1,1 @@
-### Gulbahor Shahnoza
+### Python boshlangich tushunchalar.
